@@ -2,7 +2,7 @@
 - 👀 I’m interested in Tables
 - 🌱 I’m currently learning English and Spanish
 - 💞️ I’m looking to collaborate on a treefarm
-- 📫 How to reach me pigeon
+- 📫 How to reach me: pigeon or letter
 - 😄 Pronouns: ABCDEFGHIJKLMNOPQRSTUVWXYZ
 - ⚡ Fun fact: I like tables
 
